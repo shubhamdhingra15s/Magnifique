@@ -2,4 +2,4 @@
 
 Magnifique - Online Fashion
 
-At Maginfique, we set the trend for the Gen-Z.
+At Maginfique, we set the fashion trend for the Gen-Z.
